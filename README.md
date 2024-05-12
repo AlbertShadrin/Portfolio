@@ -8,4 +8,5 @@
 
 Любимый клуб: Ливерпуль
 
-https://mcdn.wallpapersafari.com/medium/89/54/o5Gfah.jpg
+![image](https://github.com/AlbertShadrin/Portfolio/assets/168737429/5fe3d73c-b075-41fb-a0ce-013083f6db0d)
+
